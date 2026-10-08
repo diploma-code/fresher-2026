@@ -1,1 +1,1 @@
-# freshersparty-2026
+# fresher-2026
